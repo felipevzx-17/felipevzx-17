@@ -10,5 +10,4 @@ Here are some ideas to get you started:
  ANTES EU FAZIA EDIT DE CAMINHAO NO TIK TOK, EU TENHO 1,7K DE SEGUIDOR, NOME DA MINHA CONTA E
  MEU SONHO E TER UM CAMINHAO PROPIO E DEICHAR ELE DO MEU JEITO, TAMBEM TER UMA FAMILHA BEM  
 
-
-![image](https://github.com/user-attachments/assets/21be99b1-c3a5-41a4-9370-da6dbef568f9)
+![](https://media1.tenor.com/m/mu447OZCxmkAAAAC/scania.gif)
