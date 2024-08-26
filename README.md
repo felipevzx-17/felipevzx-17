@@ -8,4 +8,4 @@
 
 ![](https://media1.tenor.com/m/mu447OZCxmkAAAAC/scania.gif)       ![](https://media1.tenor.com/m/oW22nQJ24jcAAAAC/nissan-gtr-car.gif)
 
-![](https://media1.tenor.com/m/b2ZOucB2kUUAAAAd/gtr.gif)          ![](https://media1.tenor.com/m/HjJFJOI6YqoAAAAC/krueger-cod.gif)
+![](https://media1.tenor.com/m/b2ZOucB2kUUAAAAd/gtr.gif)  
